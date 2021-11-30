@@ -3,7 +3,7 @@ Ig blue tick generator ~ Instagram verified badge generator [#Trick]
 
 
 
-CLICK HERE TO HACK >>>>>>>>>>> https://rebrand.ly/verified-badge
+CLICK HERE TO HACK >>>>>>>>>>> https://gamedips.com/insta-badge
 ================================================================
 
 
